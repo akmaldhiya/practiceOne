@@ -1,3 +1,3 @@
 # Akmal Pemanis Buatan
 
-akmal ganteng euy ffffff
+akmal ganteng euyg
